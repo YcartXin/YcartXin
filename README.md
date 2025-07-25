@@ -1,5 +1,5 @@
 
 
-Hello, my name is Tracy and a fourth-year university student :)
+Hello, my name is Tracy and a university student heading into a MA in Statistics :)
 
 
